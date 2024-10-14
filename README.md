@@ -1,5 +1,5 @@
 saddu xx Inc
-<h1 align="center">VAJIRA-MD 6.O</h1>
+<h1 align="center">sadew MD 6.O</h1>
 
 ## Have anyone more tha 3 year old whatsapp number message to me now  https://wa.me/94711453361
 
